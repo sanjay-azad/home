@@ -5,42 +5,37 @@ nav_order: 4
 parent: Prologue
 ---
 
+# Life / living beings
 
-DATE
+Upto this point we have considered Humans only in our imagination. But wlog, all the previous concepts can be extended to all other life forms - who have senses, intellect, conciousness.
 
-Humane might be having higher intellect compared to all other species present 6xth. But nothing can be said surely about the other 2 properties if we consider the Universe or the mully verse we can understand that Humans are not at the centre what generally believe in There are multiple levels. of lifehood present amory multitude of species Хноши о unknown
+Humane might be having higher intellect compared to all other species present on Earth. But nothing can be said surely about the other two properties. If we consider the Universe or the multiverse we can understand that Humans are not at the centre - what generally believe in. There are multiple levels of lifehood present among multitude of species known or unknown.
 
-But what is the definition of life or how do we disting wish between a More importantly of lifehood.? living have and non- -living entity? a exhaustive notion.
+But what is the definition of life or how do we distinguish between a living and non-living entity? More importantly can we have an exhaustive notion of lifehood?
 
-You might have heard these thoughts that the Universe i a living entity as a whole and that each and every particle has had in it. How do we digut these and bring them in context ?
+You might have heard these thoughts that the Universe is a living entity as a whole and that each and every particle has God in it. How do we digest these and bring them in context?
 
-These are some questions that make us wander through the concepts of will I power and determiniem. - without- Que fruit full response can arme that all living beings have the will power. whereas the men living elements possess deterministic nature. a
+These are some questions that make us wander through the concepts of willpower and determinism - without a fruitful response. 
 
+One can argue that all living beings have the will power, whereas the non-living elements possess a deterministic nature.
+But the above reasoning may fail if we can make intelligent artificial agents whose outputs are not deterministic, but probabilistic. Acting in probabilistic terms is similar to having a will power. If the actions of the agent are mot explainable to a good degree (incomprehensible), then it can be claimed to have will power.
 
-DATE 29/05/23
+Similarly on the other hand, the chaos theory tells the events in the Universe are happening on the basis of the increasing entropy tendency. Hence, nothing is deterministic even in planetary motion. 
 
-But the above reasoning may fail sometime if we can make intelligent artificial agents whore outputs. are not deterministic, but probabilistic Act Acting in probabilistic terms is similar to having will power If the actions of the agent are mot explainable to a good depree (incomprehensible), than it can be claimed to have will power.
+It is better to say that they are driven by will power to follow a set of orbits and trajectory. The same can be said in quantum domain.
 
-Similarly on the other hand, the chase theory telle the va events in the Univ. happenly on the boste of the increasing entropy tendency Mence nothing is deterministic even in planetary motion. It is better to say that they are driven by will power to follow a set of orbits and bajectory: 1. The same be in quantum demain
+Thus, some scientific measures of lifehood has to be relied upon. Few are: characteristic life processes like respiration, excretion, reproduction. But since they are mostly present in artificial systems, so we take the crux of them:
+- Information passing through genes
+- Evolution strategy (own perspective), change (external perspective) for survival and growth
 
-Thus some scientific mentures of lifehood hair fo be relied opon now are characteristic life processes like - But since they respiantion, excretion, reproduction. are mostly present in artificial system. So we take the crux of them a 1) information passing through games
+Life is strongly associated with the Nature and the creation theories of the Universe.
+The living beings too show duality in their way of existence. They have conciousnes through which they witness the sorrounding. They have a knowlege transfer mechanism to effect the surrounding.
 
-2) Evolution Stackedy (from their own. perspecting? change in outlook (from entide) for survival and growth
+The *Purusha-Prakriti* duality (energy and conciousness) mentioned in the Sankhya darshan as well as in the Kashmir Shaiviam tells the necessary and sufficient conditions of existence of life.
 
-life is strongly associated with the Nature and the creation thrones of the Inirerse.
+Even our own cells are living or dead, and there exist life forms in cellular level only like amoeba. The point is that we humans are not of the centre. There must exist life in cosmic and particle levels too. We just have to be aware of the concioueners around us.
 
-
-DATE
-
-So the living things too show way of existence - duality in this 1 they have conciousnes through which they
-
-withers the sorrounding space. 2). They have knowlege transfer mechanism to effect the surrounding
-
-The energy and conciaviness duality mentioned in the Sankhya darshan and Purusha - Brakotti duality also present in Kashmir Shaiviam tell the the necessary and sufficient conditions of existence of life. there
-
-Even our own cells are living or dead, and the exist life forms in cellular level only like amoeba. The point is that we mans are not of the extitre. There must- exist life in cosmic and partide levels too. We just have to be aware of the concioueners around us.
-
-Hence, it is not wroly to say that the cormor is a living entity and the very life force breathing life in it We have no living can also fuel the life in a particle. way to tell now that the meson or the Earth but that it completely possible.
+Hence, it is not wrong to say that the cosmos is a living entity and the very life force breathing life in it can also fuel the life in a particle. We have no way to tell now that the moon or the Earth is living but that is completely possible.
 
 
 

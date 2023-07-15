@@ -5,17 +5,17 @@ nav_order: 1
 parent: Prologue
 ---
 
+# Awareness
 
-## Awareness
+In the common English usage, it means - knowing stuffs. Although *knowing* has to be defined but we get the idea. 
+Now, there are two faces to the meaning of the word: 
 
-In the common English usage, it means - knowing stuffs. Although 'knowing' has to be defined but we get the idea. 
+- Being immersive / in-the-moment
 
-Now, how the duality comes is that there are two faces of the meaning of the word: 
-
-- Being immersive / in-the-moment: 
 When we talk about approaching anything in life with a sense of involvement then it hints at awareness coming as a result of putting effort into the object and showing up to it. Not being dissiesive to any thought, person or opportunity, keeping the door of possibility open that any of them can put us to higher awareness (closeness to God or Reality).
 
-- Being the *Drsta* / Putting onself out of the situation:
+- Being the *Drsta* / Putting onself out of the situation
+
 When we talk about not getting entangled, we mean the awareness coming from observing and taking a step back. This concept is complementary to the concept of getting deep into the present moment. Present moment is important in physice domain, but when constraint it - we try to live it as fully as possibly with all awareness. This state in spritual world is termed as being the *Drsta* or the knowing Self.
 
 
