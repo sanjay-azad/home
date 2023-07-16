@@ -7,9 +7,9 @@ parent: Prologue
 
 # Life / living beings
 
-Upto this point we have considered Humans only in our imagination. But wlog, all the previous concepts can be extended to all other life forms - who have senses, intellect, conciousness.
+Upto this point we have considered Humans only in our imagination. Without loss of generality, all the previous concepts can be extended to all other life forms - who have senses, intellect, conciousness.
 
-Humane might be having higher intellect compared to all other species present on Earth. But nothing can be said surely about the other two properties. If we consider the Universe or the multiverse we can understand that Humans are not at the centre - what generally believe in. There are multiple levels of lifehood present among multitude of species known or unknown.
+Humans might be having higher intellect compared to all other species present on Earth. But nothing can be said surely about the other two properties. If we consider the Universe or the multiverse we can understand that Humans are not at the centre - what generally believe in. There are multiple levels of lifehood present among multitude of species known or unknown.
 
 But what is the definition of life or how do we distinguish between a living and non-living entity? More importantly can we have an exhaustive notion of lifehood?
 
@@ -36,6 +36,3 @@ The *Purusha-Prakriti* duality (energy and conciousness) mentioned in the Sankhy
 Even our own cells are living or dead, and there exist life forms in cellular level only like amoeba. The point is that we humans are not of the centre. There must exist life in cosmic and particle levels too. We just have to be aware of the concioueners around us.
 
 Hence, it is not wrong to say that the cosmos is a living entity and the very life force breathing life in it can also fuel the life in a particle. We have no way to tell now that the moon or the Earth is living but that is completely possible.
-
-
-

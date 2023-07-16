@@ -28,7 +28,7 @@ So, basically the words I am talking about are denoting a process, rather than a
 
 This is a transition from the 'Known" territory to the 'Unknown'!!
 
-Now, here is the dually - the *Known* & the *Unknown* both of which are traversed by the Seeker during the process of realization / enlightenment. The state that is achieved after getting to know the complete reality - is Unitary: *Sthita-Pragya*. So the known and unknown are equally important for a person on the path to liberation. This justifies the means of *Saguna* (in-forms) worship while maintaing that the end of the truth is in *Nirguna* (formless).
+Now, here is the duality - the *Known* & the *Unknown* both of which are traversed by the Seeker during the process of realization / enlightenment. The state that is achieved after getting to know the complete reality - is Unitary: *Sthita-Pragya*. So the known and unknown are equally important for a person on the path to liberation. This justifies the means of *Saguna* (in-forms) worship while maintaing that the end of the truth is in *Nirguna* (formless).
 
 Somebody has to start from the *Known* or something with properties, like idols, symbols, or even metaphors. The *Unknown* is devoid of proporties, that is incomprehensible. The words cannot reach there, the mind and intellect cannot fathom it.
 
