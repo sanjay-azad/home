@@ -13,7 +13,7 @@ It's good to minimise energy wastage on proper thinking and decision making in o
 
 I am not directing here on mindless and tiresome thinking that is nowadays called overthinking. But being present in the moment is the *key*. 
 
-There are few poits to ponder over: 
+There are few points to ponder over: 
 
 - Existence is what there is.
 

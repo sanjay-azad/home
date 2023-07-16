@@ -7,11 +7,11 @@ parent: Humans
 
 # Fear & Insecurities
 
-No matter how much we attempt to remove them from our lives, they always show up unwarranted. Although they are just somee emotions in our mind, they materialize and originate from our worldly affairs. Hence are very real.
+No matter how much we attempt to remove them from our lives, they always show up unwarranted. Although they are just some emotions in our mind, they materialize and originate from our worldly affairs. Hence are very real.
 
-We fear the loss, we fear for the reputation, we fear about our own judgements of good and bad. No matter how much the society has taught us, and no matter how much knowledg we have gathered - when it comes to applying our wisdom - we fear. 
+We fear the loss, we fear for the reputation, we fear about our own judgements of good and bad. No matter how much the society has taught us, and no matter how much knowledge we have gathered - when it comes to applying our wisdom, we fear. 
 
-We feel insecuree about our achievements - all the good relationships we have accumulated, our wealth, and our states of pleasure/hapiness.
+We feel insecure about our achievements - all the good relationships we have accumulated, our wealth, and our states of pleasure/hapiness.
 
 The fear originates because of the unpredictability. We don't know the real consequences of our actions. We don't know the actual causality behind our states of happiness and pain. We dont want our loved ones to leave us, but that is never predictable.
 

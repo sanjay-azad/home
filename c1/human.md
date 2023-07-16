@@ -15,17 +15,15 @@ We are getting deeper and deeper understanding of our sorroundings and enviromen
 
 This is what primarily we have been doing since the dawn of Human evolution. Every adventure, enterprise, and all sorts of co-operation & entrepreneurship have come into existence, and being driven by the same process.
 
-In past few years, the rate if this process has manifolded. The billions of people on Earth are collectively knowing stuff, thanks to our of sharing and inquiring.
+In past few years, the rate of this process has manifolded. The billions of people on Earth are collectively knowing stuff, thanks to our culture of sharing and inquiring.
 
 We, as Humans are doing brilliantly good. We have found cures of lethal diseases like cancer, tuberculosis, we could outperform a recent pandemic Corona, we are exploring exoplanets - not just our Moon, and Mars. Our telescopes are looking far and wide to the extremes of the observable universe - looking back into time, studying evolution of galaxies and getting to see the black holes. Artificial Intelligence is achieving new heights daily. 
 
-We have developed Language models in AI. The learning we acquired around verbal communication over thousands of years - we are able to impart to a machine by just few years of research and trainings.
+We have developed Language models in AI. The learning we acquired around verbal communication over thousands of years - we are able to impart it to a machine by just few years of research and trainings.
 
-Basically the collective effort of Humans over a considerable period of time is bearing fruit now.
+Basically the collective effort of Humans over a considerable period of time is bearing fruits now.
 
-No doubt there is much to be explored, vast expanse of things outside our reach. But we have started to achieve and we are achieving quickly. It's not just about technological feat, but arriving at a collective conciousness and intellect. We have discarded bloodshed and war, have systematic approach for transactions removing any threat of immorality and cheating.
-
-We are aware about privacy, we devise mechanism, contracts, and laws to make the best out of society. 
+No doubt there is much to be explored, vast expanse of things outside our reach. But we have started to achieve and we are achieving quickly. It's not just about technological feat, but about arriving at a collective conciousness and intellect. We have discarded bloodshed and war, have systematic approach for transactions removing any threat of immorality and cheating. We are aware about privacy, we devise mechanism, contracts, and laws to make the best out of society. 
 
 Basically we are fulfilling what all our ancestors desired so dearly to have - controlling the nature, removing the factor of fear from aus daily lives, generating a sense of achievement, moving more towards pleasure and minimising the probabilities of disappointments. 
 
