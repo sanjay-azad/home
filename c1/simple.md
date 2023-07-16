@@ -7,7 +7,7 @@ parent: Humans
 
 # Convenience vs Simplicity
 
-Convenience results into complexity. We have to see and audit ourselves, how our desires of convenience have turned out and where it has put us. Isn't it adding to the more complexity - which is not that much convenient what we imagined. 
+Convenience results into complexity. We have to see and audit ourselves, how our desires of convenience have turned out and where it has put us. Isn't it adding to the more complexity - which is not that much convenient what we imagined?
 
 We have stopped romanticizing simplicity - because we want instant solution, and greater gratification.
 

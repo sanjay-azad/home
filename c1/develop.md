@@ -1,6 +1,6 @@
 ---
 layout: default
-title: Development
+title: Sustainability
 nav_order: 4
 parent: Humans
 ---
@@ -23,17 +23,17 @@ We are destroying nature - that is evident from the climate change and unbearabl
 
 Even in economic terms most of our actions are debatable - usage of vehicles, air-conditioner, eating meat, wellness products, nuclear power, space projects, medicines and side effects, eating processed foods - like refined flour and oil, having cold drinks. We dont know what's good and bad - thats why so much confusion, fear and unsustainable behaviour.
 
-Technology, intellect, human endeavers and adventuriem are not to be blamed completely. They are a very good facilitator for the increasing entropy of the universe. The more we know, the more we by ent different things, charging aus perception and
+Technology, intellect, human endeavors, and adventurism are not to be blamed completely. They are a very good facilitator for the increasing entropy of the universe. The more we know, the more we try out different things, changing aur perception and perspective completely. 
 
+The existence of things and ideas are not good or bad unto themselves. It's how we approach them, the way or methods/means employed to achieve them, or to materialize them, or to extract greater meaning out of them that turns out to be good or bad.
 
+The existence is what there is - born out of the chaos of Universe. No existence can harm anybody as it is completely deterministic.
 
-DATE
+But how we interact with it, how we employ it, and what somebody acquires out of it is going to be the game-changer as it is completely will power driven (in worldly behaviour at least).
 
-or bad perspective completely. The existence of things and dear are not good unto themselves. It's how we approach them, the way or method / meam employed to achieve them, or to materialize them, as to extract greater meaning out of them that turns out to be good. or bad.
+So what is needed? We need awakening.
 
-The existence is what there is -born out of the chaus of universe. No existence coun hoom anybody as it is completely deterministic.
-
-But how we interact with it, how we employ it and troow what somebody aequited out of it is going to be the game-changer as it is completely will power driven. (in worldly behaviour at least).
-
-So what is needed? we need awakening A shift from worldly knowlege to a universal awagener. Then only can take better decisions, be confidant about good and bad, eliminate fear, develop understanding, and enjoy greater predictability they removing of stress and anxiety Informed decking are good but what are the sources of information? We put humans at nick with our ill informed declines.
+ A shift from worldly knowlege to a universal awareness. Then only we can take better decisions, be confident about good and bad, eliminate fear, develop understanding, and enjoy greater predictability - thus removing of stress and anxiety. 
+ 
+ Informed decisions are good but what are the sources of information? We put humans at risk with our ill informed decisions.
 
