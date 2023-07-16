@@ -7,11 +7,16 @@ parent: Humans
 
 # Stress
 
+The gain in technology, and our ever increasing attempts at understanding life and its factor's through worldly knowledge is not just being unhelpful with our mental wellbeing, but are also detrimental.
 
-DATE
+The more we put efforts and the lesser we celebrate our achievements, the more we are falling in the vicious circle of losing self worth, existential crisis, stress, psychological ailments resulting in bodily afflictions.
 
-In many caset, the increasing stress levels in a direct result of air, water and noise pollutione. But recently screens are putting more that the desired Jevel of stress into humane. we feed in screent for Knowledge, entertainment, and convenience, but it can take extreme form of addiction. when there fe a realization of time-waste, if shoote
+The kind of losses and uncertaintive we have today are not new. They have always been there. But the distress is new. The desperation is new. Agree that there is lot more competition among people, but there is competition among the new fields of work that you can do and feel piviledged and accomplished.
 
-up our strees level. stress is good to put us directed. But autant stren spike can cost us our health. Not to mention the content that youngarters are watching and fuelling to sumeral behaviour and a dejindation in the dignity of boys and girls bath is being catered by screens. Boys feel stress over wastage of their precione spom sifter watching come half naked girls dance and the same way girls feel stres for keely noticed of not noticed online.
+In many cases, the increasing stress levels is a direct result of air, water and noise pollutions. 
 
-Humans interaction and communication through personl touch has shifted over screens. Parents need to know smartphone to be connected to their tech Savy children with ease This is a transition period of genisations with technology becoming adding more selerant- nowadays. more strep to both the gemmations. New. is heavily reliant on technology without a sever of direction. No doubt why Al is getting prominence.
+But recently screens are putting more than the desired level of stress into humans. We feed on screens for knowledge, entertainment, and convenience, but it can take extreme form of addiction. When there is a realization of time wasted on internet, if shoots up our strees level. 
+
+Stress is good to put us directed. But constant stress spike can cost us our health. Not to mention the contents that our youngesters are watching, and fuelling to the immoral behaviour and a degradation in the dignity of boys and girls, is being catered by screens. Boys feel stress over wastage of their precious sperm after watching some half naked girls dance, and in the same way girls feel stress for being noticed or not noticed online.
+
+Humans interaction and communication through personl touch has shifted over screens. Parents need to know operating smartphone to be connected to their tech-savy children with ease. This is a transition period of generations - with technology becoming more relevant nowadays, adding more stress to both the generations. New generation is heavily reliant on technology without a sense of direction. No doubt why Al is getting prominence.

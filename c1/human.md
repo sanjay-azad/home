@@ -7,43 +7,28 @@ has_children: true
 
 # The Need of the hour
 
+I am writting this in the year 2023. We are living in an age where there is abundance of information. We are overwhelmed by new information or knowledge mere with the flick of fingers. All we have to do to process that in our brains, keep some good enough memory, and transform the information into understanding. 
 
-I am writting this in the year 2023. We are living in an age where there is abundance of information. We are overwhelmed with new info or Knowledge lease mere the flick of fingers. All we have to do Te process that memory our brains, keep some good enough mes and transform the info into understanding. with this now found understanding. equipped , we are 36
+With this now found understanding, we are equipped to adventure into the unknown and explore ideas, criticise things and optimize the workflows. 
 
-to adventure into new unfound territory and
+We are getting deeper and deeper understanding of our sorroundings and enviroment along with our own brain and psychology.
 
-explore ideas, criticise things and optimize the workflows. We are getting deeper and deeper understanding of our sorroundings and enviroment alay with our own
+This is what primarily we have been doing since the dawn of Human evolution. Every adventure, enterprise, and all sorts of co-operation & entrepreneurship have come into existence, and being driven by the same process.
 
-brain and psychology
+In past few years, the rate if this process has manifolded. The billions of people on Earth are collectively knowing stuff, thanks to our of sharing and inquiring.
 
-This is what primarily doing Since the dawn of Human evolution. Every adventure+ enterprise, and all sort of co-operation entrepreneurship have been down come into exelua and being driven by the same procers.
+We, as Humans are doing brilliantly good. We have found cures of lethal diseases like cancer, tuberculosis, we could outperform a recent pandemic Corona, we are exploring exoplanets - not just our Moon, and Mars. Our telescopes are looking far and wide to the extremes of the observable universe - looking back into time, studying evolution of galaxies and getting to see the black holes. Artificial Intelligence is achieving new heights daily. 
 
-we have
+We have developed Language models in AI. The learning we acquired around verbal communication over thousands of years - we are able to impart to a machine by just few years of research and trainings.
 
-been
+Basically the collective effort of Humans over a considerable period of time is bearing fruit now.
 
-In past few years, the rate if this process has manifolded. The billions of people i Earth are collectively knowing stuff, thanks to our of shaving and inquiring.
+No doubt there is much to be explored, vast expanse of things outside our reach. But we have started to achieve and we are achieving quickly. It's not just about technological feat, but arriving at a collective conciousness and intellect. We have discarded bloodshed and war, have systematic approach for transactions removing any threat of immorality and cheating.
 
+We are aware about privacy, we devise mechanism, contracts, and laws to make the best out of society. 
 
+Basically we are fulfilling what all our ancestors desired so dearly to have - controlling the nature, removing the factor of fear from aus daily lives, generating a sense of achievement, moving more towards pleasure and minimising the probabilities of disappointments. 
 
-DATE
+And we are doing this recklessly. As if we are on steroids. Maybe we are on autopilot. Memory and itellect are guiding us to extract more meaning - striving for a convenient world.
 
-We, as Hymans are doing Brilliantly good. We have found cures of lethal diseases like cancer, AIDS, we could outperform a recent pandemic Corona, we are and exploring exoplanets - not just aur moon, Our telescopes are looking for and wide for the extremes of the observable universe - looking back into time, studying evolution of galaxies and to getting see the black holes. Basically we are Artificial Intelligence is achienny new heights dady modes. We have developed Language
-
-The learning we acquired around communication over tous of thousands of years. we are able to impart to a machine research and trainings. by just few years of
-
-Basically the collective effort of Hymans over a wnsiderable period of time is bearing frail now.
-
-No doubt there is much to be explosed, vast expanse of things outside our reach, but we have started to achieve and we are achieving quickly. It's not just about technology, but collective conciousness and intellect. We have discarded bloodshed and war. have systematic approach. for transaction removing any thirent of immorality and cheating.
-
-
-
-DATE We are aware contra uts about privaly, we dense mechanism, and laws make the best out of to
-
-Society Basically we are fulfilling desired so what all our ancestors. dearly to have controlling the nature. removing the factor of fear from aus daily lives, generating a sense of achievement, moving more towards pleasure and minimising the probabilities.
-
-of disappointments. And doing this recklessly. As if an steroids. Maybe not on steroids but ave on autopilot. Memory and itellect are us to exbart more convenient world meaning, striving for a we
-
-The thing is that the uncertainties and chaos we living huge - so that Kind in is of response from an interlactually advanced civilization is more than expected. It's all an attempt to removing fears and insecurities from our lives
-
-1.1 Fear and Insecurities o No matter how much we attempt to remove them from our dives, they always Although they are show up unwarranted. just sense emotions in our mind, they materialize and originate from any worldly "affaire. Hence are very real
+The thing is that the uncertainties and chaos we are living in is huge. So, that kind of response from an intellectually advanced civilization is more than expected. It's all an attempt to removing fears and insecurities from our lives.

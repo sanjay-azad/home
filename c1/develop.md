@@ -7,33 +7,21 @@ parent: Humans
 
 # Unsustainable development
 
+Some of our efforts have started showing signs of unsustainability. The progress we have made, the paths we have taken as a species, and the conditionality of nature or cosmos - all might be having some contribution towards the impending dangers to the life supporting nature as well as our own species. 
 
+when we talk of sustainable development, it asks for the judicious use of resources. Optimal, efficient and skillful usage is what that we have recognized as the desired trait - be it economic activity or our day to day life. Overuse and wastage is what we have to avoid - be it natural resources or food that we eat.
 
-DATE 11 06/25
+But all of these words are highly convoluted and subjective - not having a definite meaning.
 
-1-4 Unsustainable development • Some of our efforts have started showing eigne of unsustainability. The progress we have made, the paths. we have taken as a species and the conditionality of nature of cosmos - all might be having sewx contribution. towards the impending danjess to the life supporting
+They change their meaning - subjective to economic backgrond, demography, region (geography), the utility of the project at hand, and time - obviously. Spending millions of rupees on projects like *Chandrayan* and *Mangal* mission to make a giant leap into understanding the Universe might be debatable at a time when we have millions of malnourished children at home.
 
-mature as well as our own species. when we talk of sustainable development, It anks for tho judicious use of resources. Optimal, efficient and skillful щаде is what that we have recognized trait - be it economic activity day to day as the desir Overuse myd wastage is what we have to ardid - be it natural recorrel of food tank we eat. life
+How much usage of water daily is good enough for region like India and Africa? The availability of water decides that. Richness decides the threshold.
 
-But all of these words are highly convoluted and subjective
+We talk of globalized world and global economy, but it takes economic efforts to put resources from one place to the other.
 
-not having
+We are destroying nature - that is evident from the climate change and unbearable heat from the sun. This is destroying wildlife and putting species at risk of endangering. Our intellect is at play when we think of ourselves as superior to other animals. Possibly we are - intellectually, but we climbed the ladder of food chain so quickly that we have completely lost the sense oof good and bad. 
 
-a
-
-definite meaning
-
-chake their mennly subjective to economic backgronds demography, region (geography), the utility of the project at hand and time - dovieusly. Spending millions of rupees on projecte like chandrayan and Mangal mission to make a giant heaps into undiselundry universe might be dibatable at a time when we have. millions of malverished children at home.
-
-How much usage of water daily is good enough for Region like India and Africa? The availability of water devday that, Richness decides the threshold.
-
-
-
-DATE
-
-we tank of globalized world and global evening, but it takes clonemic efforts to put resarces from here to there.
-
-We are des buying nature - that is evident from dimate ye and unbeatable heat from the sun. This is destry charge wildlife and putting species at sick of endangering our intellect is at play when we think of ourselves as sy to other animale. Possibly. intellectually, but we are- we climbed the laddies of food chain so quickly that we have completely lost the sense oof good and band. Even in termis must of any actions are debatable- of vehicles, air-conditioner, eating meat, wellness Истра products, muclear power, space projects, medicines and side effects, eating praessed foods - like merida. and refined all, having cold drinks, excreting and gut health, homosexuality and pre-marital sex, "masterbation habit and fernism ve patriarchy we are not going into morality and ethics even-1 We dont know what's good and bad - thats why s 3-0 much confusion, faux and unsustainable behaviour.
+Even in economic terms most of our actions are debatable - usage of vehicles, air-conditioner, eating meat, wellness products, nuclear power, space projects, medicines and side effects, eating processed foods - like refined flour and oil, having cold drinks. We dont know what's good and bad - thats why so much confusion, fear and unsustainable behaviour.
 
 Technology, intellect, human endeavers and adventuriem are not to be blamed completely. They are a very good facilitator for the increasing entropy of the universe. The more we know, the more we by ent different things, charging aus perception and
 
