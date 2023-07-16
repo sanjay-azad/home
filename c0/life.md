@@ -5,7 +5,7 @@ nav_order: 4
 parent: Prologue
 ---
 
-# Life / living beings
+# Life & living things
 
 Upto this point we have considered Humans only in our imagination. Without loss of generality, all the previous concepts can be extended to all other life forms - who have senses, intellect, conciousness.
 
@@ -33,6 +33,6 @@ The living beings too show duality in their way of existence. They have concious
 
 The *Purusha-Prakriti* duality (energy and conciousness) mentioned in the Sankhya darshan as well as in the Kashmir Shaiviam tells the necessary and sufficient conditions of existence of life.
 
-Even our own cells are living or dead, and there exist life forms in cellular level only like amoeba. The point is that we humans are not of the centre. There must exist life in cosmic and particle levels too. We just have to be aware of the concioueners around us.
+Even our own cells are living or dead, and there exist life forms in cellular level only like amoeba. The point is that we humans are not of the centre. There must exist life in cosmic and particle levels too. We just have to be aware of the conciousness around us.
 
 Hence, it is not wrong to say that the cosmos is a living entity and the very life force breathing life in it can also fuel the life in a particle. We have no way to tell now that the moon or the Earth is living but that is completely possible.

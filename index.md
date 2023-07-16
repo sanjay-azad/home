@@ -4,11 +4,13 @@ layout: home
 nav_order: 1
 ---
 
-# Humans - Spirituality & the AI
+# Humans - Spirituality & AI
 
 There are two polarities of our existence - *Randomness* and *Structure*. 
 
-Randomness is a concept of free will, intution, openness, and anything coming out the pure chaos of the universe. The possibilities are endless here - non-deterministic but infinite. Whereas, the structure concept is about something that we have made deterministic - either through our understanding of the subject or by putting it into categories, classes or walls. The possibilities are definite here - conclusive but limited.
+Randomness is a concept of free will, intution, openness, and anything coming out the pure chaos of the universe. The possibilities are endless here - non-deterministic but infinite. 
+
+Whereas, the structure concept is about something that we have made deterministic - either through our understanding of the subject or by putting it into categories, classes or boundaries. The possibilities are definite here - conclusive but limited.
 
 When we start to know something, we generally begin with the structure - the classes & categories, and gradually move into the unexplored territories of the randomness as we become professional. A researcher dwells into the randomness and the nursery kids play in the structure. 
 
@@ -16,9 +18,9 @@ There's a bit of structure in all sorts of randomness and vice-versa - it depend
 
 These factors play in our day-to-day life also. Our degree of openness to a situation tells about our randomness, and our pre-disposition, reasoning and inhibition show the character of our structure. Our personality is shaped by them both. We live in a constant tussle between *randomness* of the universe and the *structure* that makes human understanding possible. Science is constantly putting more and more randomness into the structure.
 
-As a human, the current state of society and technology has led us to the twin verticals of knowledge: **Spirituality** and **Artificial Intelligence** - depicting these two polarities, respectively.
+As a human, the current state of society and technology has led us to the twin verticals of knowledge: **Spirituality** and **Artificial Intelligence** - depicting these two polarities, respectively. Both are pushing our limits to what we know, and how we perceive - in opposite direction.
 
-We need to define what both means. To begine with any discussion, and to act upon the future that technology presents, we have to have *clarity* - an understanding of what *life* means, what is the implication of a *powerful* AI, and what is it that's making *humans* fearful of AI.
+We need to define what both means. To begin with any discussion, and to act upon the future that technology presents, we have to have *clarity* - an understanding of what *life* means, what is the implication of a *powerful* AI, and what is it that's making *humans* fearful of AI.
 
 There has always been an attempt to understand what life means on a scientific level. The knowledge thus gained is then used to make our lives easier, or to achieve a bigger feat. This time, the advent of AI is seeming to put deeper impact. What could it cost? Jobs, freedom, or our sense of superiority? There is an equal possibility of transformation of humans by the AI into a superior species - if we know how.
 
