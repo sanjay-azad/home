@@ -7,6 +7,8 @@ parent: Maya
 
 # Time and Forms
 
+3-3 Time and Forms are the culpr't: The previous discine brings us at locking things in their innate form and giving back in time upto the big bary when only the essence existed that could be identified.
+
 
 DATE
 

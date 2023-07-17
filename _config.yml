@@ -1,11 +1,13 @@
 title: Randomness & Structure
 description: Knowledge base for Life
 theme: just-the-docs
+permalink: pretty
 
 url: https://sanjay-azad.github.io/home
 
 aux_links:
   About Me: https://sanjay-azad.github.io/en
 
+favicon_ico: "/assets/images/favicon.png"
 
 footer_content: "Copyright &copy; 2023 | Sanjay Azad"

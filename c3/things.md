@@ -5,39 +5,18 @@ nav_order: 1
 parent: Maya
 ---
 
-# The nature of things
+# Nature of things
 
+Different objects in the Universe exhibit different properties, as we perceive or observe them, and that is how we know them and distinguish among them. 
 
+If we look at trees - they have varied number of branches and leaves and the forms and shapes of leaves too vary. Leaves show green colour, but we know they get yellow in autumn and then it becomes grey.
 
-DATE//
+Things change over time - that's how the evolution works. Survival of the fittest attributes in the nature of things. If the change happens in a smaller period of time relative to our lifetime - we are certain of such changes happening ae part of the true nature of it. Also, if the change happens over centuries that's not part of our quest. We want to know things but we don't want to dwell on the superficial.
 
-These me the the extremes about the exilence and
+When we start to know a subject, we know in parts, categories, classifications. As the knowledge solidifies we realise that the categories are more of mixed up or dispersed, overlapping and that there is less structure and more of inter-mixing.
 
-Knowly them - structured completely and sandong new. Bit of future in there in all sorts of randomness- Aug it's this grey mafion where things, processes and then!! 28 always fluctuating shousing in stredores defonde the thing in ite endivaly-dow
+These are the two extremes about the existence and knowing them - structured completely and randomness. Bit of structure is there in all sorts of randomness. And it's this grey region where things, processes and knowing is always fluctuating. 
 
-кнопку of imffinite possibilities of the Waiter. Konwing in sand. dear'nt actually add any value in our memory. It's ju!!! just our how things It is inactionable knowledge. are However, have exbancer one dented and created by aus
+Knowing in structures degrade the thing in ite entirety - devoid of infinite possibilities of its states. Knowing in randomness doesn't actually add any value in our memory. It's just how things are. It is inactionable knowledge. 
 
-own compnition and comprehension only. What is structure for somebody its complete chack for thy another. Time alco playe a role in moving frem stuchove to chave.
-
-3.2 Truth ve. Change.
-
-How do we
-
-say that what changed was not true?.
-
-It was true in the past, but not for the present self. But the sof which is witating have not charged. with the above reasoning what is in prosent but expectat to chaye in past must als not be the as the self
-
-going to be the same. If the persiving self was diffon than the chaye here incevitable without commenting about the Buth on falschew of the abizot People come and die, flowers bloom and wither, milations Flemish and get extinct. All hente ame charges pescamble to a constant self and are thre
-
-
-
-DATE //
-
-dependent. A constant withering self is most in our
-
-previous discussion.
-
-They a natural thought arise that the exidence is not true or completely illutions. If le same ressening through which we realise that our dreamy are not frue. We were there in dreams, things happened. 131 felt, we cried, we lanced. It was full of adventures, we could even sendr others with touch. But it has to end and that too abruptly. County to sanded, we instantly know that what all sequences of the story were dream and not tre So when we anrishilate the whole creation as illusion. we are missing ot on one aspect time. Time is the canvas of charge. But yes there is another aspect of it or limited knowledy at any given point of time. when we have complete fast in any poolners and they play mischief and betray - we realise the charge hat happened in an instant, but it was actually a cast of misinformation on that part of their personality So what is noth? The dynamism of life is both, the rell pervading conciousness in the truth.
-
-3-3 Time and Forms are the culpr't: The previous discine brings us at locking things in their innate form and giving back in time upto the big bary when only the essence existed that could be identified.
-
+However, these extremes are decided and created by our own cognition and comprehension only. What is structure for somebody, it's complete chaos for the another. Time also plays a role in moving from stucture to chaos.
