@@ -7,33 +7,29 @@ parent: Maya
 
 # Time and Forms
 
-3-3 Time and Forms are the culpr't: The previous discine brings us at locking things in their innate form and giving back in time upto the big bary when only the essence existed that could be identified.
+The previous discussion brings us at looking things in their innate form and going back in time upto the big bang when only the essence existed - that could be identified.
+
+What we are essentially looking for is the Singularity in time and the pure essence in space. Time limits the eternity into past, present and future. Forms limit our sense of identification with properties, names and bodies. 
+
+Both of these give rise to limited knowledge attraction and separateness and a compulsiveness of fate or destiny.
+
+How to go beyond all those things? More importantly, is this really important to go beyond the things we just identified as the veil of Maya? 
+
+Science have given us a lot of answers in understanding the natural phenomena and worldly affairs through physics, chemistry, and biology. We know the leaves are green due to a pigment called chlorophyll. We know it will fall off as it stops getting the needed biological input.
+
+Is it really worth talking about something beyond its physicality, chemical composition, and biological process? No doubt there are mysteries in understanding the fundamental particles, quantum world, and far off distant galaxies that we have not uncovered through science. 
+
+What is really bad in just knowing the exteriority and through sense perceptions is that - we don't know the real intention of why it was put there. We remain clueless about the purposs of the existence. No doubt there are psychology, philosophy. sociology who are probing into such unknowns.
 
 
-DATE
+There are mythologies creating larger than life and highly idealized world picture. Then there is spirituality which is the ancient science to make your own way through the life process. When we have realised that the things around us and the relationships are momentary - why to practice detachment and why not get engrossed into it? 
 
-what we are essentially looking for bie the 8). in time and the pure essence in space. Time limite the eternity into past present and future. Forme limit our cense of identification with
+What is bad in utilitarian view that everything in this world has been put to satisfy our needs and desires. We, the human beings - the most intelligent, has the most authority over all of the world's resources or items. It's upto us to use them effectively with all of its properties being put to good use.
 
-properties ) names and bodies. Both of there gives rise to limited knowledge attition and separateness desting and a compulsivenen of fate or
+If the tree is revealing itself in terms of leaves and branches and trunk only, what's the purpose of getting to the essence. In fact, all we have to do is interact in its presence only that we are seeing or feeling. The idea is that - our senses are very shallow and trivial to supply us good datapoints.
 
-How to go beyond all these things? More importantly, is this really important to go beyond the things we just identified on the veil by Maya? Selence have given us a lot of anewery in understeling the natural phenomins and worldly affairs through physics, chan as it stope getting and biology. We know the leaves are green due to a pigment called chlorophyll. We know if will fall eff the needed biological imput
+The failures of science and widespread stress and anxiety and dissatisfaction are a proof of that. 
 
-Is it really worth talking about something beyond its physically, chemical composition and biological process No doubt thise are mystery in understundry the fondamental portides, quantum world and far off distant galaxies that we have not Uncovered through science. what is really bad in just Knowing the exteriority and through senses perception is that we don't know the real intention of why it was put there. We remain dueless about the pusprick of the existence. No doubt there are psychology, philosophy. sociology who are probing into such unlawns. and
+We have to go back to our ancient knowledge mentioned in *Vedas* and *Upnishads*.
 
-
-
-DATE
-
-These are mythologies creating larger than life and idealized world ploture. highly Then there in spirituality which is the ancient science to make your own way through the life proces. When me have realised that the things around us and the relationships are momentary - why to practice defachment and
-
-why not get expressed into it? what is bad in utilitarian view that everything in this und f has been put to satisfy any needs and desires. Wehman the hery most intelligent has the most authority over at of the world's relaxes or Thems are phous to use them
-
-effectively with all of its properties being put to good
-
-of the tree is reveding itself in terms of leaves and brunches and think only, whate the perspose of getting to the estima In fact all we have to do is interent in. only that we are seely or feeling. The idea is that our Senes are to supply is good datapoints. ots presence very shallow and trivial
-
-The failures of science and widespread a brees and angerity and dissatisfaction are a peof of that. We have to go back to our ancient knowledge mentioned in Vedas and Upnishads.
-
-Another definition of Maya is that something which restricte us from witnessing the complete tooth or the ultimate
-
-Reality.
+Another definition of Maya is that something which restricts us from witnessing the complete truth or the ultimate Reality.
