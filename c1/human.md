@@ -7,17 +7,15 @@ has_children: true
 
 # The Need of the hour
 
-I am writting this in the year 2023. We are living in an age where there is abundance of information. We are overwhelmed by new information or knowledge mere with the flick of fingers. All we have to do to process that in our brains, keep some good enough memory, and transform the information into understanding. 
+I am writting this in the year 2023. We are living in an age where there is abundance of information. We are overwhelmed by new information or knowledge mere with the flick of fingers. All we have to do is to process that in our brains, keep some good enough memory, and transform the information into understanding.
 
-With this now found understanding, we are equipped to adventure into the unknown and explore ideas, criticise things and optimize the workflows. 
+With this new found understanding, we are equipped to adventure into the unknown and explore ideas, criticise things and optimize the workflows. 
 
-We are getting deeper and deeper understanding of our sorroundings and enviroment along with our own brain and psychology.
+We are getting deeper and deeper understanding of our sorroundings and enviroment along with our own brain and psychology. This is what primarily we have been doing since the dawn of the Human evolution. Every adventure, enterprise, and all sorts of co-operation & entrepreneurship have come into existence, and being driven by the same process.
 
-This is what primarily we have been doing since the dawn of Human evolution. Every adventure, enterprise, and all sorts of co-operation & entrepreneurship have come into existence, and being driven by the same process.
+In past few decades, the rate of this process has manifolded. The billions of people on Earth are collectively knowing stuff, thanks to our culture of sharing and inquiring.
 
-In past few years, the rate of this process has manifolded. The billions of people on Earth are collectively knowing stuff, thanks to our culture of sharing and inquiring.
-
-We, as Humans are doing brilliantly good. We have found cures of lethal diseases like cancer, tuberculosis, we could outperform a recent pandemic Corona, we are exploring exoplanets - not just our Moon, and Mars. Our telescopes are looking far and wide to the extremes of the observable universe - looking back into time, studying evolution of galaxies and getting to see the black holes. Artificial Intelligence is achieving new heights daily. 
+We, as Humans are doing brilliantly good. We have found cures of lethal diseases like cancer, tuberculosis, we could outperform a recent pandemic - Corona, we are exploring exoplanets - not just our Moon, and Mars. Our telescopes are looking far and wide to the extremes of the observable universe - looking back into time, studying evolution of galaxies and getting to see the black holes. Artificial Intelligence is achieving new heights daily. 
 
 We have developed Language models in AI. The learning we acquired around verbal communication over thousands of years - we are able to impart it to a machine by just few years of research and trainings.
 

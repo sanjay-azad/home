@@ -5,7 +5,7 @@ nav_order: 2
 has_children: true
 ---
 
-# Introduction
+# Prologue
 
 In the spiritual domain, there is a great scarcity of words. Each and every word that we use has to be defined properly, otherwise there is confusion - mismatch in the meanings across different linguist groups as well as the unclear concepts because of the usage of those words in our day-to-day life without going deeper in their meanings and profoundity.
 
@@ -29,6 +29,8 @@ There is an understanding that our languages are our own creation, from our past
 
 What we are essentially looking for is the pure knowledge that is infallible, something to drive our decision making and fuel our satisfaction - effectively.
 
+### Polarities or Facets?
+
 The reality always have two facets - and both complemantary ones. You can treat it as a dualist principle, but again - a dualism contained inside a non-dual context (more on this in Indian philosophy). It's like two faces of a same coin. If you are concerned about the face - they are two. But if you are concerned about the totality and the system - then there is one.
 
 Generally, the two faces can be characterised by below properties:
@@ -37,10 +39,12 @@ Generally, the two faces can be characterised by below properties:
 
 Let me give some examples: 
 
-When we aspire to do something, we are generally motivated by the demand of the situation to put us to work. But we will do it only when there is something for us in store. You might think it as a corrupted human psychology, but its existence is real in worldly events and even in defining the spiritual words mentioned previously.
+When we aspire to do something, we are generally motivated by the demand of the situation and society to put us to work and give output. This is altruist aspect. But we will do it only when there is something for us in store. You might think it as a corrupted human psychology, but its existence is real in worldly events. This is the selfish aspect. 
+
+They find presence even in defining the spiritual words mentioned previously.
 
 - True transparency requires revealing both - altruist & selfieh motives
 
-Talking about transparency, when we go in a co-operative enviroment - the motivation behind the other person's intentions remain unclear till the selfish motives are known completely. 
+Talking about transparency, when we go in a co-operative enviroment - the motivation behind the other person's intentions remain unclear till the selfish motives are known completely. So knowing them required knowing the two faces - altruistic & selfish. 
 
-So knowing them required knowing two faces - altruist & selfish. With this background - let's now come to the point of defining the words.
+With this background - let's now come to the point of defining the words.
