@@ -8,9 +8,15 @@ nav_order: 1
 
 There are two polarities of our existence - **Randomness** and **Structure**. 
 
+
+These are innate to us and to our surroundings.
+
 *Randomness* is a concept of free will, intution, openness, and anything coming out the pure chaos of the universe. The possibilities are endless here - indeterminate and indefinite, but with infinite potential and information.
 
-And, the *Structure* concept is about something that is calculated and deterministic - either through our understanding, or by putting it into categories, classes or boundaries. The possibilities are definite here - conclusive but limited. There is always a loss of information in structure.
+And, the *Structure* concept is about something that is calculated and deterministic - either through our understanding, memory, or by putting it into categories or classes. The possibilities are definite here - conclusive but limited. There is always a loss of *information* in structure.
+
+We have to define *information*, but you can think of a high resolution image as having high information compared to its low resolution version, which is lossy. Sometimes, the loss in information is practical and imperceptible.
+
 
 When we start to know something, we generally begin with the structure - the classes & categories, and gradually move into the unexplored territories of the randomness as we become expert.
 
@@ -18,7 +24,9 @@ There's a bit of both structure and randomness in everything we do and interact 
 
 The same sequence of string may look random to somebody and filled with patterns to someone seeking it. With long enough time, the structure reveals itself to any given observer. That's precisely the reason why defining scientifically - *randomness* and *pattern* is such a tedious task. Particularly, when the length of the string to be considered can vary.
 
-These factors are a part of our personality too. Our degree of openness to a situation or theory tells about our randomness; and our pre-disposition, reasoning and criticism show the character of our structure. We may consider that, generally, our concious mind is all structure - and the sub-concious, a randomness.
+- We are living in an *eternal* time.
+
+The randomness & structure are a part of our personality too. Our degree of openness to a situation or theory tells about our randomness; and our pre-disposition, reasoning and criticism show the character of our structure. We may consider that, generally, our concious mind is all structure, and the sub-concious is a randomness.
 
 We live in a conflict between the *randomness* of the universe and the *structure* that makes human understanding possible. So, Science and Philosophy both are constantly putting more and more randomness into the structure to make us comprehend things and intellectually act upon them. Thst's how we are learning and growing in this infinitely complex universe.
 
