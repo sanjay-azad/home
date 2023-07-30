@@ -8,68 +8,52 @@ parent: Reality
 # The nature of Reality
 
 
-DATE 07/07/23
+Across the Indian subcontinent, there is a great number of dieties - some from godly origin and some from human, a lot of saints and wise people who obtaind the status of great souls, few people believe in *Karma* few believe in other worldly lives, some believe in God behind the creation others don't, some believe in life after death and thre are stories of mukti/enlightenment. There are creationist principles who talk of conciousness and energy, and there are some who talk of jiva, brahman and atman. Some philosophies have a common source of Vedas, others dont have Vedas as autherity - still find similarity among the notions and beliefs. 
 
-4-1 The nature of Reality 3 Across the Indian subcontinent there is plethora of dieties. same from godly origin and some from human, a lot of saints mus wrise people who obtaind the status of greats souls few people believe in Kamma, few believe in other worldly life, home believe in God behind the crantine others dont some believe in life after death and and thre are storier of muct fenlightenment. There are cratimut principles who talk of conciousness and energy аже and Have soome who talk who jva, Bouhma and Atmon Sonu philosgthies have a common source of Kalar, offure
+Still, there are some common themes like cyclic times, illusions, creation and the oneness of things, and mukti/liberation.
 
-dont have Vedas as autherity still find similasty amery the nations and beliefs. 3b) there are bony common themed like cyclive times 1
+There are dual as well as non-dual principles in the nature of things. We'll talk about them both. 
 
-allusions, cration and the oneness of things, mult
+The human body is conceived of the carrier or the temple, able to ferry us to the unknown or to bring the divinity amongst us.
 
-There are
+Here, we shall talk of some of the refined forms of the Indian philosophy - Vedanta: dual and non-dual, Sankhya: the oldest philosophy talking of the dual character of the Reality, and Kashmir Shaivism with non-dual principle and Buddhism seeking the oneness of things.
 
-duality and non-dual principles in the nature
+What are dual and non-dual? 
 
-of things. We'll talk about beth- The how bady is conceived of the casser of the temple. able to ferry up to the unknown or to loving the divinity amoy vs.
+It is the primal entity or energies that gave rise to creation in succession, What is present in everything and what is timeless. It is the essence of the God and cause of all effects. That entity is referred to as *Brahman* in Vedanta, *Paramshiva* in Shaivism, and *Buddha* in Buddhism.
 
-Here we shall talk of some of the refined froms of Indi Philosophy - Vedanta & dual and non-dual, Sanchya the oldest philosophy talking of mon dual chamuchit of the Reality and Kashmir Shaivism with nonded principle and Buddhism seeking the things, sikwiem raping all are 4 oneness of
+In contrast, the Sankhya theory talks of two primordial realities giving rise to creation - Purusha & Prakriti.
 
+Interesting thing is that the Vedanta has picked Purusha or conciousness as the Brahman - or the one encompassing all energies or Prakriti. Similarly, Shaivism talks of both the elements - Prakriti and Purusha originating out of Paramshiva or the pure conciousness throbbing with *spandan* or vibration. 
 
+There has always been a quest to know the nature of the Supreme Reality. That entity has sometimes been referred to as the God - or the creator. The beautiful thing is that the creator has been a part of the creation all along. 
 
-DATE
+It's like the ocean and a drop - the ocean is all pervading and the drops has come out of it. Drop has all the properties of the ocean and is capable of being ocean itself. The Ocean is living inside the drop.
 
-What are dual and non-dud. It is the primal entity or angles that gave sise to creation in succession. what is precut in everything and what is timeless. It is the essence of had and cause of all effects that entity is referred to me Bontman in vedant, Parametiva in Shaivism, Buddha in Buddhism Wahihow in siklusm
-
-In contrast Santhy they talks of two primordial
-
-realities giving rise to creation -
-
-Purusha, Prakriti.
-
-Interesting thy is that Vedanta hee picked Pususter as as the Brahman or the are including every or Prakrit. Similarly shorism talls of both the elements of Bonkriti originating out of lammshira or the pure conciousness encompassing spandan. There has always been a quest to Know the nature.
-
-of supreme Reality. That entity has been referred to of the cred- or creator. The kemntiful thing is that the creator has been a part of the conation all along Ite like a drup and the ocean ocean is all pervading and the drags bad come out of it. Drop has all the properties.
-
-of the ocean and is capable of being ocean itself. Ocean
-
-is living inside the doop. Nature of all the infinity of elements of universe is what the nature of the cred is - Rune concievines and an element of energy into it that Riesgy manifests of matter. Ne can asigh any name to the Reality but what's imp.
-
-in the charter.
+Nature of all the infinity of elements of universe is what the nature of the *God* is - pure conciousness and an aspect of energy into it. That energy manifests as matter. We can assign any name to the Reality but what's important is the charater.
 
 
-DATE 03/07/23
+**Atman and Brahman**
 
-4.2 Alman and Brahman: Everybody is aware that we are making any own mality. we know of relative goodness and badness of things. We know that our mood chayer and it hampers how WR are данна take the world today. No doubt there are objective tw the like taxes, tragedize and accidents, flowers, grecheries and responsibilities.
+Everybody is aware that we are making our own reality. We know of relative goodness and badness of things. We know that our mood changes and it hampers how we are going to take the world today. No doubt, there are objective truths like taxes, tragedies and accidents, flowers, greeneries and responsibilities.
 
-There are some aspects that we think we are going to handle on any own with our own mind, energy and concierney, At the same time there are some contight that are driven by divine will or conciousness, so we have given them names - Afman and Brahman. Bahman is a concept of pare conciousney - find, ment
+There are some aspects that we think we are going to handle on our own - with our own mind, energy and conciousness. At the same time there are some concenrs that are driven by the divine will or conciousness. So, we have given them names - Atman and Brahman. 
 
-in Vedantic non-dual phobosophy. It is important as Vedanta is supposed to be most mature and refined way. of looking at life-relizny on Vedas knowledge. This entity of pure conuousness pulsating with enrays is described as Param Shiva in sparda system of kashmir Shaivism.
+Brahman is a concept of pure conciousness - finds mention in Vedantic non-dual philosophy. It is important as Vedanta is supposed to be most mature and refined way of looking at life - relying on Vedic knowledge. This entity of pure conciousness pulsating with energy is described as ParamShiva in the Spanda system of Kashmir shaivism.
 
-Alman is the inner core self of what we relate to The one who is all observing, undisturbed by thoughts emotions and memory/ dispositions. Alman is all puse and sometimes consider part of the and os 13thman - thee attributing the main Goal of Atman to be the min with the cod or witnessing the and withier. They are individud conscientiness as aguupt Pure.
+Atman is the inner core self of what we relate to - the one who is all observing, undisturbed by thoughts, emotions and memory/dispositions. Atman is all pure and sometimes considered part of the God or Brahman - thus attributing the main goal of Atman to be the union with the God or witnessing the God within. These are individual conciousness as against Pure.
 
 
+So, conciousness is one of the property of the essence of reality, or that the Ultimate Reality is conciousness only. This is the primitive, primordial aspect that gave rise to everything - hence all the elements of creation, whether matter or energy has an aspect of intelligence. Creation theories in Tantra and Shaivism talks of the union of intelligence and energy to give rise to the whole nature.
 
-DATE
+**Purusha and Prakriti**
 
-So concierines is one of the property of the esse of reality or the Jitimate Reality is concreuser only. This is the primitive, primordial aspect that gave sign to everything - have all the elements of cation- whither matter of energy has an aspect of intelligence Creation thery in Tauba and Shaiviem talla of the orion of intelligence and Every to give rise to the whole nation
+Here, it to important to mention the Sankhya darshan: the oldest Vedic philosophy. As a quest to know the true nature of reality, it goes up to the duality of Purusha and Prakriti.
+It says there are two realities: Purusha which is only conciousness - free from matter; and Prakriti which is ever changing and flowing and giving rise to matter.
 
-43 Puruclaa and Balsity : there it to important to mention the Sankhya darshah and the oldest vedic philosophy. As a quest to know the true rature of reality, it goes up the duality of Marsha and 2 says there are 2 realities Prouske which is only conejoner - free from matter, and Bratent which ever changing and sise to matter,
+Purusha is translated as self/soul or conciousness as it is neither mind, nor brain, nor ego, nor intellect. There are many Purushas. 
 
-Punisha is translated of self /cow of conielting as it is
-
-neither mind, nor brain, not ego, nor intilaul-, tux.
-
-are many Panchas. Baker't in the so nature of matter regect that is the uncaused cause underlying of considly effects. It is the potentiality of nature, which can neither be counted an be daybayed. It only changes fomis. It gavembles the suny concept of thermodynamics. It is the cause of all effects. and changes in the formy. - constitute of the three genas - Sutter pic) Rajas, Tamas
+Prakriti in the nature or matter aspect that is the uncaused cause underlying oll worldly effects. It is the potentiality of nature, which can neither be created nor be destroyed. It only changes forms. It resembles the energy concept of thermodynamics. It is the cause of all effects, and changes in the forms. It is constituted of the three gunas - *Sattva*, *Rajas*, *Tamas*.
 
 
 
