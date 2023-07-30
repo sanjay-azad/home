@@ -6,6 +6,7 @@ nav_order: 1
 
 # The Existence & Us
 
+
 There are two polarities of our existence - **Randomness** and **Structure**. 
 
 
@@ -53,4 +54,4 @@ We need a knowledge base for the future societies to guide them at the face of c
 
 ---
 
-Next: [Prologue](c0/intro.md).
+Next: [Prologue](c0/intro/).

@@ -43,7 +43,7 @@ When we aspire to do something, we are generally motivated by the demand of the 
 
 They find presence even in defining the spiritual words mentioned previously.
 
-- True transparency requires revealing both - altruist & selfieh motives
+- True transparency requires revealing both - altruist & selfish motives
 
 Talking about transparency, when we go in a co-operative enviroment - the motivation behind the other person's intentions remain unclear till the selfish motives are known completely. So knowing them required knowing the two faces - altruistic & selfish. 
 
