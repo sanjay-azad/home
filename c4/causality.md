@@ -7,43 +7,32 @@ parent: Reality
 
 # Causality & the origin
 
+For humans, coming to the question of - "who am I?" or, "why am I here?" is not strightforward. We live, we enjoy, we dance and we go in despair, and we lament.
 
-DATE
+We have identified ourselves with moods, and our beliefs and we function based on our needs and abilities. We have an image of ourselves that is coming from past dispositions and tendencies / personality.
 
-4.4 Causality and the Origin : For humane, causing to the question of who am I? or why am I here? Px not strightforward. We live, we by we dance and we go in despair and we dament.
+We realise with experience that all the effects has some cause - whether it's natural effect or our own experience. Some events or actions become cause of some of the effects, and that might become a cause of another set of events, or that might require some action by an agent to cause the next set of effects.
 
-We have identified ourselves with moods and we finition based on our needs and abilities. We have an image of ourselves that is coming from past dispositions and tendencies./personality.
+This realization puts us into doing the right thing always, as our doing is coming back as consequences. It takes time to observe such patterns. If you study, you see that you are passing exams with flying colores, and that will put you in certain conditions where only you have to act, as against someone who fails flat without studying. But that other person too has to act at some different situation originating out of academic failure.
 
-We realise with experience that all the effects has sema cause - whether it's natural effect in our own experience Some events or actions become cause of some of the effects that might become cause of another set of eats. or that might rephire some action gent to cause
+Since we don't know the future, this urge to always do the right thing takes the form of looking back at all our causal decisions - individual as well as societal. This raises the question of our existence.
 
-next set of effects.
+But more importantly, there is a quest to know the total existence - the nature and its phenomena, the cosmos and the origin, as we are a part of it and our experiences are a product of it. 
 
-This realization puts us into doing the right thing along doing is coming back as courerences. It takes time to observe such patterns. If you study, kfou see you are passing with flying coloves and that can put you in certain condition where only you have to act against as someone who falls flat- without studying. Rup-he that comme too have to alf at semne different-site- riginating out of acad whic foulure. Since we dont'
+The idea is that by backtracing the origin of everything, we would be able to know - 'who am I?', and 'why am I?'. The question of what is causing what effect is vary deep & complex one as there could be thousands of factors deciding over that, and that is precisely the reason why attempting to know the future is a vague one. Still, we are doing it as it has challenges that intoxicate our imagination. Causality is a reality that is driving the wheel of creation forward by making things happen.
 
-know the farture, this urge to do the right thing takes the form of looking back at all out cause decisione, individuals as well as secital. This guises the question of our existence. But more
+That's why at the start of everything, we have to suppose an existence or entity - that is uncaused cause. To understand such discussion, there should always be a defined 'system'. If the system is whole of the universe - then that primal cause has to be present inside that which manifested as the universe. If the system is anything smaller, the initial cause can be from the outside.
 
+When we make correlation based intelligent systems as AI, we realise that the correlation is not sufficiently capturing whole of the patterns. It's the causality that depicts the likelihood of events and happenings. It covers patterns, or rather randomness of the Universe. In that grandness of complexity, it becomes clear that it is not anything about good or bad. It is about the existence and universe taking on some definite configuration - that is so outside our understanding that we perceive them as randomness. But the answer to all the present configuration is there in the singularity or a simple act of Union. 
 
+A single union in singularity set a wheel in motion, that is still unfolding as cause and effect. It is all an interplay of intelligence and data (or memory). Intelligence is coming from the conciousness and the memory is the manifestations of the energy and the matter.
 
-DATE
+Intelligence is acting on the data to create a higher state of memory or a more complex data, and that in turn is giving rise to more evolved & complex, and higher level of intelligence. Data analysts would relate to this allegory: having a raw data - and intelligence of the nature creating higher and higher levels of report out of it.
 
-there is a quest to know the total existence the nature and its phenomena, the cosmes and the origin as we are a part of it and our experiences are a product of it. The idea is that by back bucing the origin of everything We dould be able to know who am I and why am I? The question of what is causing what effect is vary desp complex one as there could be loses of factors deviding our that, and that is precisely the season why attempting to know the future is a vague one still we are -doing it as it has challeryes that intoxicate our imagination. Causality is a reality that is driving the wheel of coation forward by making things happen.
+It is happening to the universal, as well as to the individual. There is a requirement of an infinite data and infinite intelligence at the start or origin / sigularity.
 
-That's why at the start of everything , we have to supposk an existence that is uncaused cause To understand such. discussion there should always be a defined system. If the system is whole of miverse - then that primal cause has to be present inside which manifested as the unitse- If the system ie any smaller, the initial cans can be four the outside.
+We are a product of it, or rather a part of the process that is set to produce more complex entities. The creation is in full throttle. There is nothing bad or harmful in where the humanity is going, or about the onset of AI and its effects on humans. We are here to observe the change and manifestations. The realised beings in the past do not criticize or comment. They have given a mantra - To witness. 
 
-When we make correlation bound intelligent systems. as Al we conclude that correlation is not capterning whole of the pattern. It's the causality that depicts likelihood of events and happenings. It covere pontoms or rather randomness of the Universe. In that grandness of complexity it becomes clear that it is not about good bad. It is about existence and universe taking a on definite configuration.
+Knowing is our prime nature - but judgements come from acquisition or predisposition. The present day humans, and the environment around us is a snapshot of the creation out of a continuum. It has not been like that always, nor is it going to be the same. 
 
-
-
-DATE
-
-thank is so outside our ondasstanding that we perceive them as mudowners But the answer to all the preaut configuration is there in the stgularity or a simple aut
-
-of Union. A single onion in singularity set a wheel in moting that is still infolding as cause and effect. It is all an of intelligence and data/movery. interplay
-
-Intelligence in alting on the data and that in thon creating more complex and higher level of intelligence That in turn is able to create higher level of lafa Thire Ex a regisrement of infinite duta and infinite infelligince at the shot or origin / sigularity
-
-we are a product of it, or rather a part of process that Pas set to produce more complex entities. The cratim is in full throttle. There is nothing bad or harmful, we are here to observe Realised being do not criticize or
-
-comment. They have given a matripu - To withers. our prime nature - but judgements come from aequition or predisposition. The present day hinaus and the environment around is a snapshot of the cration. I have not been like that always same. , nor is it going to be the
-
-An analysis of carsality from effects perspective maker ve belive that no consequences are good or bad. It's about our acceptance or refusal of the concyronce.
+An analysis of the causality from the effects perspective makes us believe that no consequences are good or bad. It's about our acceptance or refusal of the consequence.

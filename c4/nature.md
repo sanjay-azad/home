@@ -53,16 +53,13 @@ It says there are two realities: Purusha which is only conciousness - free from 
 
 Purusha is translated as self/soul or conciousness as it is neither mind, nor brain, nor ego, nor intellect. There are many Purushas. 
 
-Prakriti in the nature or matter aspect that is the uncaused cause underlying oll worldly effects. It is the potentiality of nature, which can neither be created nor be destroyed. It only changes forms. It resembles the energy concept of thermodynamics. It is the cause of all effects, and changes in the forms. It is constituted of the three gunas - *Sattva*, *Rajas*, *Tamas*.
+Prakriti in the nature or matter aspect that is the uncaused cause underlying all worldly effects. It is the potentiality of nature, which can neither be created nor be destroyed. It only changes forms. It resembles the energy concept of thermodynamics. It is the cause of all effects, and changes in the forms. It is constituted of the three *gunas* (properties) - *Sattva*, *Rajas*, *Tamas*.
 
 
+If Prakriti and Purusha remain separate, there is dissolution (*Pralay*). For evolution (srage/srishti), they must unite. The inactive Purusha and the non-intelligent Prakriti cooperate to serve the and, and this disturbs the balance of the three gunas and that leads to the evolution or creation (Sankhya Karika: 21). This notion resembles the Tantric philosophy of the union of Shiva and Shakti.
 
-DATE to /06/23
+Kashmir Shaivism talks of Shiva and Shakti emerging out of the Paramshiva (pulsating conciousness) as the first and the second elements of creation, respectively.
 
-If Bakriti and Purity remain sepesute, these is. dissolution (Pralay) for evolution (staje, srishti) they must unite The inactive Pussy and the non-intelligent Bukriti cooperate to serve the and, and the disturbs the balance of the 3 genes mud that leads to the evolution or eration (Sankhya Karikni 21). This within semblee the Tomtric philosophy of the union of shive and Sharks-
+Shiva is the passive conciousness, and the shakti is the consort of Shiva which is the pure energy element. Their union gives rise to several other elements of creation like senses, Maya and language. Although interestingly, the tantrik or shaivism text talk of Purusha and Prakriti as emerging out of the Paramshiva only - but at the later stage as 12th and 13th elements after the Maya and its agents out of the primal 36 elements it talks about (appendix).
 
-Kashmir Shiver take of Shird and starkti emerging out of the Paramshiva (pulcating comesaurus) as 1st and zuh alarmente of cruction, respectively.. and the shakti is the
-
-Shiva is the passive cheionnels consort of Shiva which is puse energy alement. Their mim give rise to sevasul other element of cruction like senser, Maya and language. Although interestingly the tantrisk or shaivism text talk of Purusha and Prakriti as everging out of Paramshiva only but at later stufe as 12th and 13th elements affer the Maya and ite agents out of the primal 36 elements it takes about * (appendix).
-
-Now it could be a matter of choice. wered or just the subjective reality how the 2 philosophies talle of the same demente on I levels of the reality. Now me thing is cotein that it is some sort of drien that bryll creation. What existed before that?
+Now, it could be a matter of choice of words or just the subjective reality how the two philosophies talk of the same elements on two different levels of the reality. One thing is certain that it is some sort of union that triggered the creation. What existed before that?
