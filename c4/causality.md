@@ -35,4 +35,4 @@ We are a product of it, or rather a part of the process that is set to produce m
 
 Knowing is our prime nature - but judgements come from acquisition or predisposition. The present day humans, and the environment around us is a snapshot of the creation out of a continuum. It has not been like that always, nor is it going to be the same. 
 
-An analysis of the causality from the effects perspective makes us believe that no consequences are good or bad. It's about our acceptance or refusal of the consequence.
+An analysis of the causality from the effects perspective makes us believe that no causes are good or bad in themselves. It's about our acceptance or refusal of the consequence.
