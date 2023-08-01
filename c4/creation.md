@@ -14,12 +14,11 @@ Shiva is one of the trinity of the Gods in Hinduism and mostly considered the hi
 
 These personalities find hundreds of references in the Puranic texts, but they could also be representing the subtle form of the nature and the phenomena. 
 
-One interesting aspect to note is that this trinity is assocated with their respective feminine counterparts too, who se depicted as their wives. Lakshmi - the goddess of wealth is with Vishnu, as the world requires prosperity to function well and flourish. Saraswati, the Goddess of knowledge accompany Brahma. This implies the creation require the support of knowledge or information. We'll talk about the information theory later.
+One interesting aspect to note is that this trinity is assocated with their respective feminine counterparts too, who are depicted as their wives. Lakshmi - the goddess of wealth is with Vishnu, as the world requires prosperity to function well and flourish. Saraswati - the Goddess of knowledge accompany Brahma, which implies that the creation require the support of knowledge or information. We'll talk about the information theory later.
 
 *Shi-va*, whose literal meaning is *"that which is nothing"*, is accompanied by Shakti (personified as Sati/Parvati). Shakti represent the all powerful, from whom the gods derive their powers. The infinite energy is the partner of Shiva.
 
 Now, Shiva himself has various dimensions - Puranic, Yogic, Vedic and Tantrik, based on how different philosophies perceive him. He is even reverred by the Asuras of Puranas, who are against all the other gods as per the Lexts. Vishnu, who is to maintain balance - is mostly in tussle with the Asuras.
-
 
 Shiva is considered the *Adiyogi* - the first yogi who transmitted the knowledge and powers of Yoga to humans. He had abode in *Kailasha*, Himalayas. It seems he was a human who marries Parvati and transcends the boundary to become Shiva. That person is the *Shankara* whose forms and descriptions are available. He is worshipped as *sakara* (with form).
 
