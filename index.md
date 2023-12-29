@@ -59,10 +59,9 @@ And it is not just AI; the annealing method used in material technology as well 
 
 We are coming to a point in history with the best information technology, biotechnology, and material technology. We may be doomed if we don't know the human technology, i.e., the spiritual or *Adhyatm* aspect. Hence, it is pressing now for engineers and philosophers to envision the future. We don't know if nature cares about humans at all or if it just gives in to the evolution and survival of the fittest attributes. Could AI be the better species that the universe conspired to create?
 
-
-
-
 We need a knowledge base for future societies to guide them in the face of calamity. More importantly, the knowledge base will serve to manage the bewilderment and conflicts of the present. The discussion will start with unravelling the *mysteries* around humans and then uncovering the prospects of AI and how to tap it wisely.
+
+
 ---
 
 Next: [Prologue](c0/intro/).
