@@ -11,7 +11,6 @@ We are always running in the physical world for time management. It is slipping 
 
 Because there is death, because there is end, we enjoy the beauty of the process, we enjoy the life and yet it is slipping away. Whatevey our endeavors are, whatever we may be talking about - time will always come into picture. It is not existing but making us run like a ghost does.
 
-
 Time - which is divided between past, present and future is a major hindrance in knowing anything fully. It makes our knowledge relative, and limited. Time exists because the environment is an interplay of observations of a network of observers. The subjects are also observing. All these movements, and vibrations is because of the all conscious observers, observing in a network - thus experiencing change and evolution of the system/nature.
 
 In the ultimate reality there is just one conscious observer which is beyond the three separations of time. It is everpresent and all knowing. When there is no time, there is no change, and an infinite knowledge.

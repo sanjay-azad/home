@@ -7,8 +7,7 @@ parent: Reality
 
 # The nature of Reality
 
-
-Across the Indian subcontinent, there is a great number of dieties - some from godly origin and some from human, a lot of saints and wise people who obtaind the status of great souls, few people believe in *Karma* few believe in other worldly lives, some believe in God behind the creation others don't, some believe in life after death and thre are stories of mukti/enlightenment. There are creationist principles who talk of conciousness and energy, and there are some who talk of jiva, brahman and atman. Some philosophies have a common source of Vedas, others dont have Vedas as autherity - still find similarity among the notions and beliefs. 
+Across the Indian subcontinent, there is a great number of dieties - some from godly origin and some from human, a lot of saints and wise people who obtaind the status of great souls, few people believe in *Karma* few believe in other worldly lives, some believe in God behind the creation others don't, some believe in life after death and then there are stories of mukti/enlightenment. There are creationist principles who talk of conciousness and energy, and there are some who talk of jiva, brahman and atman. Some philosophies have a common source of Vedas, others dont have Vedas as autherity - still find similarity among the notions and beliefs. 
 
 Still, there are some common themes like cyclic times, illusions, creation and the oneness of things, and mukti/liberation.
 
