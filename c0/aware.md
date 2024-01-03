@@ -31,4 +31,4 @@ All forms of meditation and focussing on one's breath comes under immersive kind
 
 ---
 
-Next: [Consciousness](/c0/conscious/).
+Next: [Consciousness](/home/c0/conscious/).

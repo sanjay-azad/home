@@ -40,4 +40,4 @@ Now with this understanding, and with the acknowledgment that the words cannot r
 
 ---
 
-Next: [Humans](/c1/human/).
+Next: [Humans](/home/c1/human/).

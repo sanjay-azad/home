@@ -54,4 +54,4 @@ With this background - let's now come to the point of defining the words.
 
 ---
 
-Next: [Awareness](/c0/aware/).
+Next: [Awareness](/home/c0/aware/).

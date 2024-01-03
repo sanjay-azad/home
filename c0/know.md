@@ -39,4 +39,4 @@ Sense, Intution, Information, and Understanding develop out of them.
 
 ---
 
-Next: [Living & Life](/c0/life/).
+Next: [Living & Life](/home/c0/life/).
