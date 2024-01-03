@@ -25,7 +25,7 @@ That's why at the start of everything, we have to suppose an existence or entity
 
 When we make correlation based intelligent systems as AI, we realise that the correlation is not sufficiently capturing whole of the patterns. It's the causality that depicts the likelihood of events and happenings. It covers patterns, or rather randomness of the Universe. In that grandness of complexity, it becomes clear that it is not anything about good or bad. It is about the existence and universe taking on some definite configuration - that is so outside our understanding that we perceive them as randomness. But the answer to all the present configuration is there in the singularity or a simple act of Union. 
 
-A single union in singularity set a wheel in motion, that is still unfolding as cause and effect. It is all an interplay of intelligence and data (or memory). Intelligence is coming from the conciousness and the memory is the manifestations of the energy and the matter.
+A single union in singularity set a wheel in motion, that is still unfolding as cause and effect. It is all an interplay of intelligence and data (or memory). Intelligence is coming from the consciousness and the memory is the manifestations of the energy and the matter.
 
 Intelligence is acting on the data to create a higher state of memory or a more complex data, and that in turn is giving rise to more evolved & complex, and higher level of intelligence. Data analysts would relate to this allegory: having a raw data - and intelligence of the nature creating higher and higher levels of report out of it.
 

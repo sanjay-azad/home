@@ -9,7 +9,7 @@ parent: Prologue
 
 This word has been referred to as by many names - mukti, liberation, realization, nirvana, and many more, and has been prescribed to be the ultimate goal of oneself - by many scriptures and sages. The realization of the utimate or the supreme knowledge has been sought to be the purpose of mankind (or any life form to say) and the true objective of beings.
 
-The above words may have slight variations in their meanings and usage, as they originate from different cultures / religions / geographies.
+The above terms may have slight variations in their meanings and usage, as they originate from different cultures / religions / geographies.
 
 Eg. Mukti means freedom - from the bondage of *Karma*, from the cycles of life and death. It is of primary concern in Hinduism as it deals with rebirths and Karma theory at its centre. Realization is rather a philosophical word, finding usage in Indian *darshanas* - primarily dealing with Sanatana dharma, having references in *Vedas* and *Upanishads*. Nirvana is used in Buddhism to donate the attainment of real knowledge state by Lord Buddha.
 
@@ -36,4 +36,8 @@ Once we start saying anything about the true Knowledge - it does not remein true
 
 For an individual Self, the self realization is always beyond 'known' and it is a process of remembrance rather than achievement or getting there. By remembrance we mean it is always there - undisturbed and ever present form. We just have forgotten about it.
 
-Now with this understanding, and with the acknowledgment that the words cannot reach 'unknown' or *Nirguna*, lets start our journey from the known - relying on limited knowledge and identifying the process from the limited knowledge to the true knowledge. In this journey, we'll rely on Intellect, Prakriti', Conciousness and Science.
+Now with this understanding, and with the acknowledgment that the words cannot reach 'unknown' or *Nirguna*, lets start our journey from the known - relying on limited knowledge and identifying the process from the limited knowledge to the true knowledge. In this journey, we'll rely on Intellect, Nature, Consciousness and Science.
+
+---
+
+Next: [Humans](../c1/human/).

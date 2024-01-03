@@ -21,7 +21,7 @@ We have developed Language models in AI. The learning we acquired around verbal 
 
 Basically the collective effort of Humans over a considerable period of time is bearing fruits now.
 
-No doubt there is much to be explored, vast expanse of things outside our reach. But we have started to achieve and we are achieving quickly. It's not just about technological feat, but about arriving at a collective conciousness and intellect. We have discarded bloodshed and war, have systematic approach for transactions removing any threat of immorality and cheating. We are aware about privacy, we devise mechanism, contracts, and laws to make the best out of society. 
+No doubt there is much to be explored, vast expanse of things outside our reach. But we have started to achieve and we are achieving quickly. It's not just about technological feat, but about arriving at a collective consciousness and intellect. We have discarded bloodshed and war, have systematic approach for transactions removing any threat of immorality and cheating. We are aware about privacy, we devise mechanism, contracts, and laws to make the best out of society. 
 
 Basically we are fulfilling what all our ancestors desired so dearly to have - controlling the nature, removing the factor of fear from aus daily lives, generating a sense of achievement, moving more towards pleasure and minimising the probabilities of disappointments. 
 

@@ -7,7 +7,7 @@ parent: Humans
 
 # Awakening
 
-We have to stop running an an auto-pilot mode. Although subconcious cognition and decision making is very much crucial for our development and existence, but with due respect to the subconcious mind, we have to review and recognize how our subconcious has been fed. 
+We have to stop running an an auto-pilot mode. Although subconscious cognition and decision making is very much crucial for our development and existence, but with due respect to the subconscious mind, we have to review and recognize how our subconscious has been fed. 
 
 It's good to minimise energy wastage on proper thinking and decision making in our day-today tasks. But once we start becoming aware, we start losing the urge to frame things in our boundary, we start realising that the boundary we have created through our subconciens identifications is the cause of many of our sufferings.
 
@@ -29,7 +29,7 @@ There are few points to ponder over:
 
 - Limits in the time perceived limits all our knowlege and that puts boundary in our thinking. This in tern puts us into fear of unknown and insecurity towards the uncertain
 
-- We, choosing complexity over simplicity is stright-away coming from our subconcious driving majority of our day 
+- We, choosing complexity over simplicity is stright-away coming from our subconscious driving majority of our day 
 
 - Complexity arise in our life because of the convenience we have choosen in the past
 

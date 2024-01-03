@@ -23,12 +23,12 @@ Thus our outer environment as well as our inner conscience - both have a role in
 
 The essence of physics is that the frame of reference decides how we perceive a phenomena/event and that also governs all our mesurements and observations to quantify. It could happen that at two places the frame of reference are different but the person experiences the same thing, because it has become a part of the system. 
 
-Time becomes a part of the observer hence the difference becomes visible if the observers are studied together at one place at same time. The readings or imprints are taken by the conciousness. It could be a living being or the atoms in an atomic clock. 
+Time becomes a part of the observer hence the difference becomes visible if the observers are studied together at one place at same time. The readings or imprints are taken by the consciousness. It could be a living being or the atoms in an atomic clock. 
 
-That conciousness is sometimes a part of the system whose elements it is witnessing, or sometimes outside that system. It is the play of systems only - of which if we are not aware we would record an erroneous reading. All the laws of physics start with a definition of the system it is talking about. That means there is change in the conciousness of people at different frames of reference for how they are perceiving the same flow of events when the rate was actually different. 
+That consciousness is sometimes a part of the system whose elements it is witnessing, or sometimes outside that system. It is the play of systems only - of which if we are not aware we would record an erroneous reading. All the laws of physics start with a definition of the system it is talking about. That means there is change in the consciousness of people at different frames of reference for how they are perceiving the same flow of events when the rate was actually different. 
 
 We have to assess what the flow of events is? If our whole reality was about looking at just one particular person, our flow of events resembled the rate of activity the person would be doing.
 
 What is time? What are we perceing actually - that we termed as events in our opening sentence of the chapter. Is it a change in ether or the *akasa* that is the essence of all our observations, because we feel there is no charge in how events occure, even if what we are observing changes speed in space. 
 
-With this observation that our conciousness is relative, it becomes clear that nothing is real - raising suspicion in every bit of our knowlege - thanks to time. This demands an identification of the illusion, *Maya*.
+With this observation that our consciousness is relative, it becomes clear that nothing is real - raising suspicion in every bit of our knowlege - thanks to time. This demands an identification of the illusion, *Maya*.

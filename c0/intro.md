@@ -14,12 +14,13 @@ Science has also sought to explain phenomena and for that it has also coined som
 Some commonly used terms:
 
 Awareness     |  Atman
-Conciousness  |  God
+Consciousness |  God
 Knowledge     |  Maya
 Information   |  Observation
 Enlightenment |  Reality
 Living or Life|  Jad and Chetan
 
+There is no particular meaning that they have been written side by side. The above 12 words find regular mention in any discussion around understanding the existence. Nowadays, with the advent of science and AI - few of them have became hot topics, like, Consciousness, Information, Observation, Life, etc.
 
 The premise is that - only if we could understand or comprehend these few words fully, then we can get greater insights into the philosophy and thoughts that our great sages and thinkers have left us. The thoughts are all arounds us. Our understanding mostly depends upon the definitive meaning of those words.
 
@@ -39,12 +40,18 @@ Generally, the two faces can be characterised by below properties:
 
 Let me give some examples: 
 
-When we aspire to do something, we are generally motivated by the demand of the situation and society to put us to work and give output. This is altruist aspect. But we will do it only when there is something for us in store. You might think it as a corrupted human psychology, but its existence is real in worldly events. This is the selfish aspect. 
+When we aspire to do something, we are generally motivated by the demand of the situation and society to put us to work and give output. This is the altruist aspect. But we will do it only when there is something for us in store. You may think it as a corrupted human psychology, but its existence is real in worldly events. This is the selfish aspect.
+When we love, we give and nourish them - no matter their flaws and downsides. But the feeling of love originates out of a sense of contentment and comfort from them.
+In this common scenario, both altruistic and selfish motives coexist. The altruistic side reflects your genuine desire to assist and support your friend. Meanwhile, the selfish aspect acknowledges the potential benefits and positive social dynamics that can result from your helpful actions.
 
-They find presence even in defining the spiritual words mentioned previously.
+The two faces find presence even in defining the spiritual terms mentioned previously.
 
 - True transparency requires revealing both - altruist & selfish motives
 
-Talking about transparency, when we go in a co-operative enviroment - the motivation behind the other person's intentions remain unclear till the selfish motives are known completely. So knowing them required knowing the two faces - altruistic & selfish. 
+Talking about transparency, when we go in a co-operative enviroment - the motivation behind the other person's intentions remain unclear till the selfish motives are known completely. So knowing them completely required knowing the two faces - altruistic & selfish. This duality is not necessarily negative - altruism and selfishness are intertwined.
 
 With this background - let's now come to the point of defining the words.
+
+---
+
+Next: [Awareness](aware/).
