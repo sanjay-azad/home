@@ -64,4 +64,4 @@ We need a knowledge base for future societies to guide them in the face of calam
 
 ---
 
-Next: [Prologue](c0/intro/).
+Next: [Prologue](/c0/intro/).

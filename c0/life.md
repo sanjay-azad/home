@@ -40,4 +40,4 @@ Hence, it is not wrong to say that the cosmos is a living entity and the very li
 
 ---
 
-Next: [Enlightenment](enlight/).
+Next: [Enlightenment](/c0/enlight/).

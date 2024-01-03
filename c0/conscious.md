@@ -36,4 +36,4 @@ The true reality has been hidden to us (the individual selves) by the *Maya* asp
 
 ---
 
-Next: [Knowledge](know/).
+Next: [Knowledge](/c0/know/).
