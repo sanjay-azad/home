@@ -1,8 +1,8 @@
 ---
 layout: default
 title: AI
-nav_order: 7
-has_children: true
+nav_order: 1
+parent: Digital
 ---
 
 # Introduction

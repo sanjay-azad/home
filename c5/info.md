@@ -1,8 +1,8 @@
 ---
 layout: default
 title: Information
-nav_order: 2
-parent: AI
+nav_order: 3
+parent: Digital
 ---
 
 # Information theory
